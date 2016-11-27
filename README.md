@@ -7,11 +7,11 @@ Lütfen değiştirmeyi "düşündüğü"nüz söz öbeğini belirtmek için www.
 
 "mevcut -?-> düşündüğünüz"
 
-Eğer başkalarının düşüncelerine katılmıyorsanız; tartışabilmak için katılmadığınız düşünceleri sorunlara (Issues) çevirin.
+Eğer başkalarının düşüncelerine katılmıyorsanız; tartışabilmak için katılmadığınız düşünceleri, sorunlara (Issues) çevirin.
 
 Kuran Çevirisi'ni, herkesin düşüncesini alarak geliştirmek istiyoruz.
 ____________________________________________________________________________________
 
-Eğer direkt fikrinizi tartışmaya açmak istiyorsanız direkt Issues(Sorunlar) www.github.com/SonAhit/KuranCevirisi/issues kısmından yeni tartışma açın.
+Eğer direkt fikrinizi tartışmaya açmak istiyorsanız, direkt Issues(Sorunlar) www.github.com/SonAhit/KuranCevirisi/issues kısmından yeni tartışma açın.
 
 Selam üzerinize olsun! =)
