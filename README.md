@@ -8,7 +8,7 @@ Herkesin fikrini dinleyerek SonAhit.com 'un Kuran Çevirisini geliştirmek istiy
 
 ✦ (Fihrist-Sözlük) www.QuraniX.org
 
-✦ (Fihrist) http://corpus.quran.com/wordbyword.jsp
+✦ (Dil Bilgisi) http://corpus.quran.com/wordbyword.jsp
 
 ✦ (İlgili Ayetler) www.KuranaSor.com
 
