@@ -10,6 +10,8 @@ Herkesin fikrini dinleyerek SonAhit.com 'un Kuran Çevirisini geliştirmek istiy
 
 ✦ (Dil Bilgisi) http://corpus.quran.com/wordbyword.jsp
 
+✦ (Kuran Tarayıcısı) www.QuranBrowser.org
+
 ✦ (İlgili Ayetler) www.KuranaSor.com
 
 Sözlükler:
