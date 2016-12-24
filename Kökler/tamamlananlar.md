@@ -1,1 +1,1 @@
-[Amn](http://quranix.org/c/Amn)
+• [Amn](http://quranix.org/c/Amn)
