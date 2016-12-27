@@ -1,6 +1,6 @@
-# SonAhit.com Açık Kaynak Kuran Çevirisi
+# Kuran114.org Açık Kaynak Kuran Çevirisi
 
-Herkesin fikrini dinleyerek SonAhit.com 'un Kuran Çevirisini geliştirmek istiyoruz.
+Herkesin fikrini dinleyerek Kuran114.org 'un Kuran Çevirisini geliştirmek istiyoruz.
 
 Çeviriyi Geliştirirken Faydalanabileceğiniz Siteler:
 
@@ -29,7 +29,7 @@ Yazılımlar - Araçlar:
 ✦ (Uzun Sayı Bölücüsü) http://bit.ly/19Calculator
 ____________________________________________________________________________________
 
-Lütfen değiştirmeyi "düşündüğü"nüz söz öbeğini belirtmek için www.github.com/SonAhit/KuranCevirisi/projects adresinde şu gösterimi kullanın:
+Lütfen değiştirmeyi "düşündüğü"nüz söz öbeğini belirtmek için www.github.com/Kuran114/Ceviri/projects adresinde şu gösterimi kullanın:
 
 "mevcut -?-> düşündüğünüz"
 
@@ -38,6 +38,6 @@ Eğer başkalarının düşüncelerine katılmıyorsanız; tartışabilmak için
 Kuran Çevirisi'ni, herkesin düşüncesini alarak geliştirmek istiyoruz.
 ____________________________________________________________________________________
 
-Eğer direkt fikrinizi tartışmaya açmak istiyorsanız, Issues(Sorunlar) www.github.com/SonAhit/KuranCevirisi/issues kısmından yeni tartışma açın.
+Eğer direkt fikrinizi tartışmaya açmak istiyorsanız, Issues(Sorunlar) www.github.com/Kuran114/Ceviri/issues kısmından yeni tartışma açın.
 
 Selam üzerinize olsun! =)
