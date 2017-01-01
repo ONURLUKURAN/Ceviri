@@ -1,4 +1,4 @@
-# Kuran114.org Açık Kaynak Kuran Çevirisi
+# Kuran114.org Açık Kaynaklı Kuran Çevirisi
 
 Herkesin fikrini dinleyerek Kuran114.org 'un Kuran Çevirisini geliştirmek istiyoruz.
 
