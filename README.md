@@ -38,6 +38,6 @@ Eğer başkalarının düşüncelerine katılmıyorsanız; tartışabilmak için
 Kuran Çevirisi'ni, herkesin düşüncesini alarak geliştirmek istiyoruz.
 ____________________________________________________________________________________
 
-Eğer direkt fikrinizi tartışmaya açmak istiyorsanız, Issues(Sorunlar) www.github.com/Kuran114/Ceviri/issues kısmından yeni tartışma açın.
+Eğer direkt fikrinizi tartışmaya açmak istiyorsanız, Issues(Sorunlar) www.github.com/Kuran114/Ceviri/issues/new kısmından yeni tartışma açın.
 
 Selam üzerinize olsun! =)
