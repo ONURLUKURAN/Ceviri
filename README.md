@@ -16,7 +16,7 @@ Herkesin fikrini dinleyerek Kuran114.org 'un Kuran Çevirisini geliştirmek isti
 
 ✦ (İlgili Ayetler) www.KuranaSor.com
 
-✦ (Kuran Metni) www.tanzil.net + www.tanzil.net/docs/Tanzil_Project
+✦ (Kuran Metni) www.tanzil.net + www.tanzil.net/docs/Tanzil_Project + www.tanzil.net/download
 
 Sözlükler:
 
