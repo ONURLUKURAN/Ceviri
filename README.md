@@ -4,7 +4,9 @@ Herkesin fikrini dinleyerek Kuran114.org 'un Kuran Çevirisini geliştirmek isti
 
 Çeviriyi Geliştirirken Faydalanabileceğiniz Siteler:
 
-✦ (Fihrist) www.alQuran.eu
+✦ (Fihrist + Kuran Metni) www.alQuran.eu
+
+✦ (19 Denetçisi) www.submission.org/QI#/contents
 
 ✦ (Fihrist-Sözlük) www.QuraniX.org
 
@@ -13,6 +15,8 @@ Herkesin fikrini dinleyerek Kuran114.org 'un Kuran Çevirisini geliştirmek isti
 ✦ (Kuran Tarayıcısı) www.QuranBrowser.org
 
 ✦ (İlgili Ayetler) www.KuranaSor.com
+
+✦ (Kuran Metni) www.tanzil.net
 
 Sözlükler:
 
