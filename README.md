@@ -28,7 +28,7 @@ Yazılımlar - Araçlar:
 
 ✦ (Fihrist + Matematiksel İnceleme Aracı) http://openquran.codeplex.com
 
-✦ (Ayetlerin Sayı Değeri) http://masjidtucson.org/quran/wordCount/QuranGV.php
+✦ (Ayetlerin Sayı Değerleri) http://masjidtucson.org/quran/wordCount/QuranGV.php
 
 ✦ (Ebced Hesaplayıcısı) www.bayanic.com/Science/abjad_calculator.html
 
