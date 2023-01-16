@@ -1,3 +1,3 @@
-# KURAN Cevirisi
+# Onurlu KURAN'IN Türkçeye Çevirisi
 
-9:128 ve 129 şeytan'dandır! ALLAH'tan değil!
+9:128-129 şeytandandır!  TANRI'DAN DEĞİL!
