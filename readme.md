@@ -1,3 +1,3 @@
-# Onurlu KURAN'IN Türkçeye Çevirisi
+# Onurlu KURAN'IN Türkçe Çevirisi
 
-9:128-129 şeytandandır!  TANRI'DAN DEĞİL!
+9:128-129 sapkındandır!  KUTSAL & ULU ZARİF'TEN DEĞİL!
