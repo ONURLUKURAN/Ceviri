@@ -9,7 +9,7 @@ Herkesin fikrini dinleyerek OnurluKuran.com 'un Kuran Çevirisi'ni geliştirmek 
 
 ✦ (Fihrist + Kuran Metni) www.alQuran.eu
 
-✦ (19 Denetçisi) www.submission.org/QI#/contents ve 19x334.com
+✦ (19 Denetçisi) www.submission.org/QI#/contents ve www.19x334.com
 
 ✦ (Fihrist-Sözlük) www.QuraniX.org
 
