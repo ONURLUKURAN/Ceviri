@@ -1,6 +1,6 @@
 # Onurlu KURAN'IN Türkçe Çevirisi
 
-9:128-129 şeytandandır!  KUTSAL ULU KRAL RAHMAN'DAN DEĞİL!
+9:128-129 şeytandandır!  KUTSAL ULU AZİM YÜCE ONURLU RAHMAN'DAN DEĞİL!
 ______________________________________________________
 
 Herkesin fikrini dinleyerek OnurluKuran.com 'un Kuran Çevirisi'ni geliştirmek istiyorum.
