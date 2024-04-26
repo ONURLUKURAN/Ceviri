@@ -51,6 +51,11 @@ Eğer direkt fikrinizi tartışmaya açmak istiyorsanız, Issues(Sorunlar) ./iss
 
 Selam üzerinize olsun! =)
 
+____________________________________________________________________________________
+
+
+https://Oku.FurkanHikmet.com/4
+
 
 Sayfa 4 - ZİKİR
  
