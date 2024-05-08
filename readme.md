@@ -3,7 +3,36 @@
 9:128-129 şeytandandır! - <b>EN AZİM EN AZİM EN AZİM BAĞIŞ SAHİBİ EN AZİM EN KUTSAL EN ALA EN YÜCE EN ONURLU EN ŞANLI TEK 1 EFENDİMİZ RAHMAN VE RAHİM OLAN ALLAH 'TAN DEĞİLDİR!</b>
 ______________________________________________________
 
-Herkesin fikrini dinleyerek [OnurluKuran.com](https://OnurluKuran.com) 'un Kuran Çevirisi'ni geliştirmek istiyorum.
+[Furkan Hikmet 'e İman Edenlerin fikirlerini dinleyerek](https://Oku.FurkanHikmet.com/9#60) [OnurluKuran.com](https://OnurluKuran.com) 'un Çevirisi'ni siz Furkan Hikmet 'e İman Eden kitabın Arapça ilmine çok iyi vakıf olan aramızdan dört kişi, çevirdiğimiz Türkçe dilinin ilmine çok iyi vakıf olan aramızdan iki kişi olmsak üzere toplam 6 Kişi ve Kitap Halkından da Şahit Olması İçin 2 Kişiyle Beraber geliştirmek [istiyorum](https://Oku.FurkanHikmet.com/4#21) .
+
+
+## [9:60](https://Oku.FurkanHikmet.com/9#60)- Ne kadar bilmiş olursanız olun ancak kendinizi yeterli görmeyin! Kuşkusuz kendini yeterli gören azar ve bir bilenin üzerinde bir bilen mutlaka vardır. Her şeyi bilen ise Ulu Bilge olan ALLAH’tır, Müstağnidir. 
+
+
+### [4:31](https://Oku.FurkanHikmet.com/4#31)- İslam, savaş değil barış, sorun değil çözüm, fitne değil kardeşlik, zulüm değil merhamet dinidir.
+
+[4:32](https://Oku.FurkanHikmet.com/4#32)- İslam, ayrılık değil beraberlik, ALLAH'ın bir takım insanlar üzerine değil, bütün insanlar üzerine beğendiği din'dir.
+
+[4:33](https://Oku.FurkanHikmet.com/4#33)- Din'de söz sahibi olan, yalnız ALLAH'tır. Din, ALLAH'ın dinidir.
+
+[4:34](https://Oku.FurkanHikmet.com/4#34)- And olsun ki O, size eksik bir kitap indirmemiştir. Noksanlıktan münezzehtir. Rabbiniz tek bir İlah'tır.
+
+[4:35](https://Oku.FurkanHikmet.com/4#35)- Hak, bir’dir ve tek’tir. Hak, ALLAH’tır.
+
+[4:36](https://Oku.FurkanHikmet.com/4#36)- ALLAH’tan gelen hüküm, Kur’an’dır.
+
+[4:37](https://Oku.FurkanHikmet.com/4#37)- ALLAH’tan gelen dışındaki bütün kitaplar, sizin ellerinizle yazdığınız putlardır.
+
+[4:38](https://Oku.FurkanHikmet.com/4#38)- Kur’an’a ortak koşmak, ALLAH’a ortak koşmaktır. Kur’an’ı, ALLAH indirmiştir. O, tek bir İlah’tır. Yalnız sorumlu olduğunuz Kur’an ile amel edin ve O’nun dışındaki bütün ilahlarınızı terk edin! O, ortağı, eşi ve benzeri olmayan ALLAH’tır.
+
+
+## [4:21](https://Oku.FurkanHikmet.com/4#21)- Ey İman edenler! Kur’an’ı başka bir dile çevireceğiniz vakit, yardımlaşarak çevirin. Bir bilenin üzerinde mutlaka bir bilen vardır. Çevireceğiniz vakit, kitabın Arapça ilmine çok iyi vakıf olan aranızdan dört kişi, çevirdiğiniz dilin ilmine çok iyi vakıf olan aranızdan iki kişi ve şahit olması için kitap ehlinden de aranızdan iki kişi bulundurun.
+
+## [4:22](https://Oku.FurkanHikmet.com/4#22)- Çevirdiğiniz vakit, ayetlere bir ekleme, değiştirme veya eksiltme yapmayın, ALLAH her türlü noksanlıktan münezzehtir. Siz ne anlıyorsanız değil, ALLAH neyi anlatıyorsa dosdoğru olarak onu yazın!
+
+## [4:23](https://Oku.FurkanHikmet.com/4#23)- [Ayet üzerinde altı](https://Oku.FurkanHikmet.com/4#31) kişi [uzlaştığı vakit](https://Oku.FurkanHikmet.com/4#32), kitap ehlinden iki kişi değerli yazıcıların yazdığına şahitlik etsin. ALLAH’tan korkun, sakının!
+
+
 
 Çeviriyi Geliştirirken Faydalanabileceğiniz Siteler:
 
