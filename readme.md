@@ -1,6 +1,6 @@
 # Onurlu KURAN'IN Türkçe Çevirisi
 
-9:128-129 şeytandandır! - <b>EN AZİM EN AZİM EN AZİM BAĞIŞ SAHİBİ EN AZİM EN KUTSAL EN ALA EN YÜCE EN ONURLU EN ŞANLI EFENDİMİZ RAHMAN'DAN DEĞİL!</b>
+9:128-129 şeytandandır! - <b>EN AZİM EN AZİM EN AZİM BAĞIŞ SAHİBİ EN AZİM EN KUTSAL EN ALA EN YÜCE EN ONURLU EN ŞANLI TEK 1 EFENDİMİZ RAHMAN VE RAHİM OLAN ALLAH 'TAN DEĞİLDİR!</b>
 ______________________________________________________
 
 Herkesin fikrini dinleyerek [OnurluKuran.com](https://OnurluKuran.com) 'un Kuran Çevirisi'ni geliştirmek istiyorum.
