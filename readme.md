@@ -1,6 +1,6 @@
 # Onurlu KURAN'IN Türkçe Çevirisi
 
-9:128-129 şeytandandır! <b>SUBHAN RABBİM EL KUDDÜS'TEN DEĞİLDİR! https://19x334.com</b>
+9:128-129 şeytandandır! <b>SUBHAN RABBİM EL KUDDÜS'TEN DEĞİL! https://19x334.com</b>
 ______________________________________________________
 
 [Furkan Hikmet 'e İman Edenlerin fikirlerini dinleyerek](https://Oku.FurkanHikmet.com/9#60) [OnurluKuran.com](https://OnurluKuran.com) 'un Çevirisi'ni siz Furkan Hikmet 'e İman Eden kitabın Arapça ilmine çok iyi vakıf olan aramızdan dört kişi, çevirdiğimiz Türkçe dilinin ilmine çok iyi vakıf olan aramızdan iki kişi olmsak üzere toplam 6 Kişi ve Kitap Halkından da Şahit Olması İçin 2 Kişiyle Beraber geliştirmek [istiyorum](https://Oku.FurkanHikmet.com/4#21) .
