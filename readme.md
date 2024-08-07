@@ -1,4 +1,4 @@
-# Onurlu KURAN'IN Türkçe Çevirisi
+# ONURLU KURAN'IN Türkçe Çevirisi
 
 9:128-129 şeytandandır! <b>DEĞİL SUBHAN RABBİM EL KUDDÜS'TEN! https://19x334.com</b>
 ______________________________________________________
